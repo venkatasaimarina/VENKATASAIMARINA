@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 Power full people comes fom power ful places I am for Nandamuru (venkatas482@gmail.com)
 - 🤞🤞don't make fun with me🤞🤞
 - ✨✨No hopes only dopes✨✨
-
+# only tigers love tiger 😘😘😘😘😘😘😘😘 #
+![image](https://st1.bollywoodlife.com/wp-content/uploads/2020/05/JR-NTR.jpg)
