@@ -14,6 +14,6 @@ I am for Nandamuru (venkatas482@gmail.com)
 
 - ✨✨No hopes only dopes✨✨
 
-![image](https://st1.bollywoodlife.com/wp-content/uploads/2020/05/JR-NTR.jpg)
+
 ### dream bike RX100 ###
-![image](https://i.pinimg.com/originals/60/1f/6c/601f6c3146776c0ac068fb16f2ae3774.jpg)
+
