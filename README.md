@@ -1,19 +1,8 @@
-### Hi there 👋
-
-
-**venkatasaimarina/VENKATASAIMARINA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+### Hi there🖐️
 
 - 🔭 I’m currently studing on electronics and communication technology
 - 🌱 I’m currently learning Git and GitHub ...
 - 👯 I’m looking to collaborate on top technology ...
-- 🤔 I’m looking for help with ...
-- 💬 Do not Ask me about studies...😎😎
-I am for Nandamuru (venkatas482@gmail.com)
-
-- ✨✨No hopes only dopes✨✨
 
 
-### dream bike RX100 ###
 
